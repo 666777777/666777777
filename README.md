@@ -6,3 +6,8 @@
 href="https://arthr0p0da.straw.page/"
 
 strawpage
+
+<p align="center"><a
+href="https://rentry.co/arthr0p0da"
+
+rentry
