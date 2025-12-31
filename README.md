@@ -3,7 +3,7 @@
 <div align="center"><img src="https://ik.imagekit.io/zrgresdqq/Untitled1272.png" alt="image" /></div>
 
 <p align="center"><a
-href="https://arthr0p0da.straw.page/"
+href="https://logmaf.straw.page/"
 
 strawpage
 
