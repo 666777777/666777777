@@ -1,6 +1,6 @@
 <p align="center"> yes i am the 67er </p>
 
-<div align="center"><img src="https://files.catbox.moe/0m8usc.png" alt="image" /></div>
+<div align="center"><img src="https://files.catbox.moe/mrfbrt.jpg" alt="image" /></div>
 
 <p align="center"><a
 href="https://finagan.straw.page/"
