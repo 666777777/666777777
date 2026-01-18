@@ -1,9 +1,9 @@
-<p align="center"> i block freely. </p>
+<p align="center"> yes i am the 67er </p>
 
-<div align="center"><img src="https://ik.imagekit.io/zrgresdqq/Untitled1272.png" alt="image" /></div>
+<div align="center"><img src="https://files.catbox.moe/0m8usc.png" alt="image" /></div>
 
 <p align="center"><a
-href="https://shrimpson.straw.page/"
+href="https://finagan.straw.page/"
 
 strawpage
 
