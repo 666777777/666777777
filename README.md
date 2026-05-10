@@ -1,13 +1,13 @@
-<p align="center"> yes i am the 67er </p>
+<p align="center"> logan, finn, kers, lake, fish yeah i go by a lot of names hi , any pronouns 6teen </p>
 
 <div align="center"><img src="https://files.catbox.moe/mrfbrt.jpg" alt="image" /></div>
 
 <p align="center"><a
-href="https://finagan.straw.page/"
+href="https://packofcrayons.straw.page"
 
 strawpage
 
 <p align="center"><a
-href="https://rentry.co/arthr0p0da"
+href="https://labsenct.atabook.org"
 
-rentry
+atabook
