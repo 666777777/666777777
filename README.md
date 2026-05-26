@@ -1,13 +1,8 @@
-<p align="center"> logan, finn, kers, lake, fish yeah i go by a lot of names hi , any pronouns, aroace, genderqueer, english and german </p>
+<p align="center"> whisper me 4 main if you want </p>
 
 <div align="center"><img src="https://files.catbox.moe/mrfbrt.jpg" alt="image" /></div>
 
 <p align="center"><a
-href="https://packofcrayons.straw.page"
+href="https://pronouns.cc/@labfag"
 
-strawpage
-
-<p align="center"><a
-href="https://labsenct.atabook.org"
-
-atabook
+pronouns
