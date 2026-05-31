@@ -1,4 +1,4 @@
-<p align="center"> whisper me 4 main if you want </p>
+<p align="center"> main is @labsenct , more info there </p>
 
 <div align="center"><img src="https://files.catbox.moe/mrfbrt.jpg" alt="image" /></div>
 
