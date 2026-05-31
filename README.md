@@ -1,4 +1,5 @@
-<p align="center"> main is @labsenct , more info there </p>
+<p align="center"> main is <a href="https://github.com/@labsenct"</a>@labsenct </p>
+<p align="center">more info there</p>
 
 <div align="center"><img src="https://files.catbox.moe/mrfbrt.jpg" alt="image" /></div>
 
