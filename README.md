@@ -1,14 +1,14 @@
 <p align="center"> main is <a href="https://github.com/labsenct"</a>@labsenct </p>
-<p align="center">more info there</p>
+<p align="center">sign ata ? 🥺</p>
 
 <div align="center"><img src="https://files.catbox.moe/dyhuw6.jpeg" alt="image" /></div>
 
 <p align="center"><a
 href="https://pronouns.cc/@labfag"
 
-pronouns
-<p align="center">
-  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31ibqlrcaazloqlin4iuhw53wf4y&redirect=true">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31ibqlrcaazloqlin4iuhw53wf4y&cover_image=false&theme=spotify-embed&show_offline=true&background_color=121212&interchange=true&profanity=false&hide_remaster=false&mode=dark&bar_color=53b14f&bar_color_cover=false">
-  </a>
+</p>
+<p align="center">⠀
+  <a href="https://labsenct.atabook.org/">atabook</a>　
+  <a href="https://proshipresources.carrd.co/#">proship meaning</a>　
+  <a href="https://pronouns.cc/@labfag">pronouns</a>　
 </p>
