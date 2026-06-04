@@ -10,5 +10,5 @@ href="https://pronouns.cc/@labfag"
 <p align="center">⠀
   <a href="https://labsenct.atabook.org/">atabook</a>　
   <a href="https://proshipresources.carrd.co/#">proship meaning</a>　
-  <a href="https://pronouns.cc/@labfag">pronouns</a>　
+  <a href="https://pronouns.cc/@labfag">pronouns (site down rn)</a>　
 </p>
